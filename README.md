@@ -1,4 +1,4 @@
-# landscaping-services-singapore
+# gardening-services-singapore
 
 Complete Garden Maintenance Singapore: Year-Round Care Plans
 <img width="1448" height="1086" alt="expert-gardening-services-singapore" src="https://github.com/user-attachments/assets/d737a678-4635-46c0-bc8e-2fd2099350cc" />
